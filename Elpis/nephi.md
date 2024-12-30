@@ -17,8 +17,8 @@
 
     When I woke, the next morning, there was a bundle of Tiefling in the stall opposite of mine. She must have arrived some time after me. *I'm surprised I slept through her arrival - it seems I've gotten a little too comfortable.*  She woke just after I had finished my breakfast, that's when I finally recognized her. She's the one I found tied to a tree in the revolutionary's camp near Dolna. I decided to keep it on the down low, only vagualy mentioning that I did in fact recognize her. She mentioned that she'd been with Cherish's lot. *So it really was her.*
 
-    It was hard to not recognize her. Even then, when she was but a child, here almost monsterous feature made her stand out. That only intesified with age and size it would seem. She's quite the impressive statue now, a tad taller than me and visible muscles everywhere, things I hadn't had the opportunity a year, or so, ago. She's sure to intimidate whoever she runs into around these parts.
+    It was hard to not recognize her. Even then, when she was but a child, her almost monsterous features made her stand out. That only intesified with age and size it would seem. She's quite the impressive statue now, a tad taller than me and visible muscles *everywhere*, things I hadn't had the opportunity to appreciate a year, or so, ago. She's sure to intimidate whoever she runs into around these parts.
 
-    Her name's Vera. I was surprised she didn't introduce herself with her Virtue name to me, but, then again, I haven't been in the loop with current practices with anything regarding that culture in some time. What ever the case, she did not seem to recognize me which worked for me. For what it's worth, she seems nice enough.
+    Her name's Vera. I was surprised she didn't introduce herself with her Virtue name to me, but, then again, I haven't been in the loop with current practices with anything regarding that culture in some time. What ever the case, she did not seem to recognize me which worked for me. For what it's worth, she seemed nice enough.
 
     She mentioned that she was out there for a job. Of course it was the same job I was there for. 
