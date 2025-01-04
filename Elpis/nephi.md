@@ -7,7 +7,7 @@
 
 - The Event - 12th of Awakening, 1388
 
-    It was Venom who turned me on to this job. Part of me wants to think he just wanted to get rid of me for a couple of days, another wants to think he genuinly thinks a change of scenery and some purpose will get me out of my stupor. It's probably the latter and I appreciate his concern. He's a good friend. *However, if you're the one reading this, what I've just commited to paper is a lie and you're stinky.* 
+    It was Venom who turned me on to this job. Part of me wants to think he just wanted to get rid of me for a couple of days, another wants to think he genuinly believes a change of scenery and some purpose will get me out of my stupor. It's probably the latter and I appreciate his concern. He's a good friend. *However, if you're the one reading this, what I've just commited to paper is a lie and you're stinky.* 
 
     It was supposed to be a simple job, clear out some freshly opened coal mine from some goblins *that refused to pay rent*. Of course, things didn't quite turn out that way. I suppose hoping for the mistresses' blessing wasn't realistic. The terms of the contract weren't quite right. But I'm getting ahead of myself here.
 
@@ -19,6 +19,8 @@
 
     It was hard to not recognize her. Even then, when she was but a child, her almost monsterous features made her stand out. That only intesified with age and size it would seem. She's quite the impressive statue now, a tad taller than me and visible muscles *everywhere*, things I hadn't had the opportunity to appreciate a year, or so, ago. She's sure to intimidate whoever she runs into around these parts.
 
-    Her name's Vera. I was surprised she didn't introduce herself with her Virtue name to me, but, then again, I haven't been in the loop with current practices with anything regarding that culture in some time. What ever the case, she did not seem to recognize me which worked for me. For what it's worth, she seemed nice enough.
+    Her name's Vera. I was surprised she didn't introduce herself with her Virtue name to me, but, then again, I haven't been in the loop with current practices with anything regarding that culture in some time. Whatever the case, she did not seem to recognize me which works for me. For what it's worth, she seems nice enough.
 
-    She mentioned that she was out there for a job. Of course it was the same job I was there for. 
+    She mentioned that she was out there for a job. By the sounds of it, the very same one I came to Lugovik for. The oddest thing, really, while I hadn't had a clue on wether I would end up working with someone or go it alone, I certainly hadn't expected to get with someone I could see myself enjoying to be with. Still not entirely sure what it is about her. Just something about her demeanour, she just seems... warm. Open. Maybe something to do with having met her before. Even though we never really interacted nor bring the places where we did meet any good memories. *Am I losing my edge?*
+
+    Whatever the case, after Vera had inhaled her breakfast, we made our way towards the inn that was supposed to be the meeting point. Yeah, the very same inn that was so very open to the likes of us... *I suppose I should get used to it, if I want to make this merc life a thing. Considering my options are rather limited I'll just have to bite my tongue, I guess. And let's just ignore how miserable I failed at that already.* 
