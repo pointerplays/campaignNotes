@@ -1,4 +1,4 @@
-Session 0 - 2024-11-10 - Is it getting hot in here?
+Session 1 - 2024-11-10 - Is it getting hot in here?
 
 - The party
     > Hanna: Ashwin Zakhariya
@@ -22,9 +22,9 @@ Session 0 - 2024-11-10 - Is it getting hot in here?
     > Boat will wait 7 Days for us before moving on (unless we contact Koh Tam)
     > Raimus will visit us every 2 days for supplies
     > We will need to go through the entirety of hell to get out again
-    > In order to take a phtlactery outside, we need to 'convince' Bealzebub to let us
+    > In order to take a philactery outside, we need to 'convince' Bealzebub to let us
 
-Session 1 -2024-12-14 - 
+Session 2 -2024-12-14 - 
 
 - Teleported to Hell near the Bronze Citadel
     > Navigator/Captain of our ship, a follower of Cyric, Tiax
@@ -40,3 +40,15 @@ Session 1 -2024-12-14 -
                 >>>> Loxodon in the Markets in the Bronze Citadel
                 >>>> The other in a tower filled with Bearded Devils
             >>> Deal: In exchange for info on how to get out of the Warslough we are to retrieve a Magical Item within
+
+Session 3 - 2025-01-05 -
+
+- Backup arrives
+    > In the morning, Ramius teleported into our camp. He came with a new member for our group
+        >> Lee Efterlevande 
+
+Session 4 - 2025-02.09 - 
+
+- Nalfeshnee Encounter
+    > Threat to be treated "like Devils" by his master (Baphomet) and his forces if we don't comply
+    > We did not comply

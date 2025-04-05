@@ -676,3 +676,19 @@ Session 42 - 08.06.2024 - Oath Pact
 Session 43 - 22.06.2024 - Destined Death
 
 > 
+
+- Session 52 - 11.01.2025 - He of many faces
+
+- Session 53 - 08.02.2025 - Hollow shells
+
+    Tressym: The library of Earth -> book of many pages to contact -> Gakshusha (Password for the Book of many pages) -> Underbelly of the Halls of Study, Shrine of Nuewa.
+    Air Spirit shrine: Upper level -> silence the wind chimes even if just for a moment
+
+- Session 54 - 01.03.2025 - 
+
+- Session 56 - 05.04.2025 - The Scrifices we make
+
+Gate is save. Close call once more. Jinsei alive but weakened. Likely need your help again. Will be in touch.
+
+Broadhand Clan (Kraegor's clan)
+
